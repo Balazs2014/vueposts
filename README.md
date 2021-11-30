@@ -1,4 +1,4 @@
-# [Név]
+# Takács Balázs
 
 ## Hogyan kezdj neki?
 
